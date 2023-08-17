@@ -1,1 +1,1 @@
-# bungaslot.chromeindustries.com
+# bungaslot.tomasp.net
